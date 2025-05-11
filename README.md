@@ -7,6 +7,87 @@
 <p class="" data-start="1091" data-end="1379">So, what exactly is MagicStore AI? In simple terms, it’s a cloud-based app that allows you to create your very own Amazon affiliate store in a matter of minutes — and I mean <em data-start="1265" data-end="1274">minutes</em>. No coding, no design skills, no technical headaches. Everything is done for you with just a few clicks.</p>
 <p class="" data-start="1381" data-end="1651">Developed by Daniel Adetunji, MagicStore AI comes packed with over <strong data-start="1448" data-end="1490">5 million best-selling Amazon products</strong>, complete with images, reviews, and even videos. You don’t have to write a single product description or upload a single picture — MagicStore AI handles it all.</p>
 <p class="" data-start="1653" data-end="1846">Even better? It brings in <strong data-start="1679" data-end="1695">free traffic</strong> using built-in AI tools, so you’re not wasting money on expensive ads. In other words, it’s a complete business-in-a-box that practically runs itself.</p>
+# 🪄 MagicStore AI – Full Funnel + Exclusive Bonuses
+
+## ⚠️ READ THIS FIRST:
+To unlock **exclusive William bonuses**, you must purchase from the **Front End link** below.
+
+📌 **WarriorPlus Link (FE):**  
+`warriorplus[dot]com/o2/a/bwktgtp/0/g`  
+🎯 **Affiliate ID: 614944 – mobikill2016** (Required for bonus eligibility)
+
+---
+
+## 🏪 Front End (FE): MagicStore AI  
+🛒 Build powerful AI eCommerce stores in minutes  
+👉 Link:  
+`warriorplus[dot]com/o2/a/bwktgtp/0/g`
+
+---
+
+## 🚀 OTO 1: MagicStore AI Pro  
+💼 Unlock premium features for better store performance  
+👉 `megamartai[dot]com/pro/`  
+💸 Discount: `$5`
+
+---
+
+## ♾️ OTO 2: MagicStore AI Unlimited  
+🔓 Remove limits, scale to the moon  
+👉 `megamartai[dot]com/unlimited`  
+💸 Discount: `$30`
+
+---
+
+## 📦 OTO 3: MagicStore AI DFY  
+🧰 Done-for-you store setup & automation  
+👉 `megamartai[dot]com/done-for-you/`  
+💸 Discount: `$50`
+
+---
+
+## 🏢 OTO 4: MagicStore AI Agency  
+👥 Offer AI store services under your brand  
+👉 `megamartai[dot]com/agency/`  
+💸 Discount: `$80`
+
+---
+
+## ⚙️ OTO 5: MagicStore AI Automation  
+🤖 Automate daily operations for passive profits  
+👉 `megamartai[dot]com/automation/`  
+💸 Discount: `$5`
+
+---
+
+## 💰 OTO 6: MagicStore AI Reseller  
+🛍️ Sell MagicStore AI and keep 100% of the profits  
+👉 `megamartai[dot]com/reseller/`  
+💸 Discount: `$20`
+
+---
+
+## 🎁 Bonus Page – What You’ll Get  
+➡️ Bonus Preview:  
+`williamreview[dot]com/magicstore-ai/`
+
+---
+
+## 💎 Special Bonuses From Me  
+🎁 **Mega 5,000 Bonus Vault – Worth $2,976,749+**  
+👉 Access here:  
+`jvzooplinformation[dot]blogspot[dot]com/2023/04/vip-5000-bonuses-from-william-review.html`
+
+---
+
+## ✅ How to Claim Your Bonuses:
+
+1. Buy **MagicStore AI** from the **FE link** above  
+2. Email your **receipt ID** to: `support@williamreview[dot]com`  
+3. You'll receive **ALL bonuses within 12 hours**  
+📧 Be sure to confirm you completed Step 2 via email!
+
+---
 
 <h2 class="" data-start="1848" data-end="1892">Why MagicStore AI Is Blowing Up Right Now</h2>
 <p class="" data-start="1894" data-end="2119">Let’s get real: the affiliate marketing world is crowded with promises and empty hype. I’ve fallen for more than a few “done-for-you” scams in my day. But MagicStore AI? This is different. It’s built to deliver — and it does.</p>
@@ -102,3 +183,84 @@
 <p class="" data-start="5208" data-end="5420">It took me from frustrated to flourishing in just days — and it can do the same for you. Whether you’re a total newbie or a seasoned pro, this tool cuts through the noise and hands you a proven system that works.</p>
 <p class="" data-start="5422" data-end="5621">So, if you’re serious about building real, passive income this year, don’t wait. Grab MagicStore AI today — before the price goes up or the deal disappears. Trust me, your future self will thank you.</p>
 <p class="" data-start="5623" data-end="5684"><strong data-start="5623" data-end="5684">Get started now, and watch your first commission roll in.</strong></p>
+# 🪄 MagicStore AI – Full Funnel + Exclusive Bonuses
+
+## ⚠️ READ THIS FIRST:
+To unlock **exclusive William bonuses**, you must purchase from the **Front End link** below.
+
+📌 **WarriorPlus Link (FE):**  
+`warriorplus[dot]com/o2/a/bwktgtp/0/g`  
+🎯 **Affiliate ID: 614944 – mobikill2016** (Required for bonus eligibility)
+
+---
+
+## 🏪 Front End (FE): MagicStore AI  
+🛒 Build powerful AI eCommerce stores in minutes  
+👉 Link:  
+`warriorplus[dot]com/o2/a/bwktgtp/0/g`
+
+---
+
+## 🚀 OTO 1: MagicStore AI Pro  
+💼 Unlock premium features for better store performance  
+👉 `megamartai[dot]com/pro/`  
+💸 Discount: `$5`
+
+---
+
+## ♾️ OTO 2: MagicStore AI Unlimited  
+🔓 Remove limits, scale to the moon  
+👉 `megamartai[dot]com/unlimited`  
+💸 Discount: `$30`
+
+---
+
+## 📦 OTO 3: MagicStore AI DFY  
+🧰 Done-for-you store setup & automation  
+👉 `megamartai[dot]com/done-for-you/`  
+💸 Discount: `$50`
+
+---
+
+## 🏢 OTO 4: MagicStore AI Agency  
+👥 Offer AI store services under your brand  
+👉 `megamartai[dot]com/agency/`  
+💸 Discount: `$80`
+
+---
+
+## ⚙️ OTO 5: MagicStore AI Automation  
+🤖 Automate daily operations for passive profits  
+👉 `megamartai[dot]com/automation/`  
+💸 Discount: `$5`
+
+---
+
+## 💰 OTO 6: MagicStore AI Reseller  
+🛍️ Sell MagicStore AI and keep 100% of the profits  
+👉 `megamartai[dot]com/reseller/`  
+💸 Discount: `$20`
+
+---
+
+## 🎁 Bonus Page – What You’ll Get  
+➡️ Bonus Preview:  
+`williamreview[dot]com/magicstore-ai/`
+
+---
+
+## 💎 Special Bonuses From Me  
+🎁 **Mega 5,000 Bonus Vault – Worth $2,976,749+**  
+👉 Access here:  
+`jvzooplinformation[dot]blogspot[dot]com/2023/04/vip-5000-bonuses-from-william-review.html`
+
+---
+
+## ✅ How to Claim Your Bonuses:
+
+1. Buy **MagicStore AI** from the **FE link** above  
+2. Email your **receipt ID** to: `support@williamreview[dot]com`  
+3. You'll receive **ALL bonuses within 12 hours**  
+📧 Be sure to confirm you completed Step 2 via email!
+
+---
